@@ -6,3 +6,6 @@ You basically shove your fucking cock inside of it and everytime you get a frien
 
 # Why is this useful
 Shut up 
+
+# How to install?
+Go learn javascript you fucking twat
